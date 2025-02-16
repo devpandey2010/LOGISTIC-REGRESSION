@@ -1,1 +1,1 @@
-HELLO EVERYONE,LETS HAVE FUN WITH LOGISTIC REGRESSION
+🚀 Dive into the Fun World of Logistic Regression! 📊
